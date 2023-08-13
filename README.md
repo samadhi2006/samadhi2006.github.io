@@ -1,1 +1,1 @@
-# samadhi2006.github.io
+# Samadhi's Web Page
